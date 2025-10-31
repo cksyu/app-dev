@@ -27,7 +27,7 @@ The story takes place in **Westeros**, where different families fight for the **
 ---
 
 ### 💭 Why I Enjoy It
-I like how it shows real human nature — that everyone has both light and dark sides.  
+I like how it shows real human nature that everyone has both light and dark sides.  
 It also teaches lessons about power, loyalty, and survival.  
 Even if some scenes are heavy, the story always makes sense and stays exciting.
 
