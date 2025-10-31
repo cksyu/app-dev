@@ -9,7 +9,7 @@ The story takes place in **Westeros**, where different families fight for the **
 ---
 
 ### ⚔️ What I Like About It
-- The story is unpredictable — you never really know who’s safe.  
+- The story is unpredictable you never really know who’s safe.  
 - Every character has their own reason and story.  
 - The fight scenes and visuals are insane.  
 - It’s not a simple “good vs bad” type of show, and that’s what makes it real.  
